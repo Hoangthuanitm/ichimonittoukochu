@@ -1,0 +1,2 @@
+# ichimonittoukochu
+ICHIMONITTOU KHÔNG CHỮ
